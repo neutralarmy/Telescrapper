@@ -1,2 +1,2 @@
-# -Neutral-Bomb-
-Best and Most Powerful Bombing Tool ever.
+#Unlimted telegram member adder script..
+
